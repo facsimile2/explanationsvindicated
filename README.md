@@ -1,0 +1,1 @@
+In 1842 the Church published Joseph Smith's Explanations of an Egyptian document known as the 2nd Facsimile of the Book of Abraham.  Until 2023 it was difficult to confirm and validate this translation, but this document now does that.
